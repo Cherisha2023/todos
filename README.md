@@ -1,0 +1,1 @@
+To work efficiently, keeping track of all the tasks is very important on a daily basis.Hence, this to-do list paves way for properly tracking all the required tasks that needs to be accomplished now and then.
